@@ -14,4 +14,6 @@
 
 Низкий шансы для выживания: 13.54% -> Леонардо Ди Каприо - Мужчина, едет в крошечной каюте 3 класса
 
+link: https://cdn.onebauer.media/one/lifestyle-images/entertainment/59d37b3124ea55f231ee47a2/titanic.jpg
+
 link: https://docs.google.com/spreadsheets/d/1XWFm8AW_-H7lB7XpXF-6viDpkOnGHs7bHpmZjse1agU/edit?usp=sharing
